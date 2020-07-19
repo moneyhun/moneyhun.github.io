@@ -1,1 +1,0 @@
-boredom level: purchased a personal domain name and am learning how to make a website
